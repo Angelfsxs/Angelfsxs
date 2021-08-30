@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Angelfsxs
 - 👀 I’m interested in Finance
-- 🌱 I’m currently learning Accpunting
+- 🌱 I’m currently learning Accounting
 - 💞️ I’m looking to collaborate on Reputable Organization
 - 📫 How to reach me angel.fsxs@gmail.com
 
